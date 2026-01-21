@@ -1,4 +1,4 @@
-**Finishing School – Course Content Repository** 
+**Finishing School**<br>
 Bridging India’s Education-to-Employment Gap
 Finishing School transforms capable graduates into confident, corporate-ready professionals.
 We bridge the space between knowing and doing.
